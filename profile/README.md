@@ -1,3 +1,1 @@
-## Hi there 👋
-
-I am Minh Tuan. 🍀🍀
+## Hi there 👋 🍀🍀
